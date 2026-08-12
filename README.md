@@ -90,7 +90,7 @@ I'm as well a multishipper. Here's a list of most fav ships.
   
 </details>
 
-I'm also associate myself with $\color{#42d472}{\text{1x1x1x1}}$. Not that I kin them, tho I can relate to him due to anger issues. Might be a reason why I act like some cartoon villain wannabe or comically rude.
+I also associate myself with $\color{#42d472}{\text{1x1x1x1}}$. Not that I kin them, tho I can relate to him due to anger issues. Might be a reason why I act like some cartoon villain wannabe or comically rude.
 
 Honorable mention of cool ppl I know ^_^
 

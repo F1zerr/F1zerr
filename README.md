@@ -3,6 +3,12 @@
 ## !! recommended to read b4 int.
 </div>
 
+<div align="center">
+  
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=100&size=17&pause=18&color=23CF08&center=true&vCenter=true&random=true&width=435&lines=1x1x1x1+WAS+HERE.;1x1x1x1+IS+COMING!;YOU'VE+BEEN+HACKED+BY+1X1X1X1!;00111110+00111010+00101001;XD+INSIGNIFICANT+NOOB.;i'm+evil)](https://git.io/typing-svg)
+
+</div>
+
 <p align="center">
   
 <img width="800" height="227" alt="ezgif-4410ad8187010d67" src="https://github.com/user-attachments/assets/83380d96-b395-4f24-99ef-c5d9d5d74452" />

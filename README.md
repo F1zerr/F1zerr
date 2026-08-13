@@ -98,6 +98,8 @@ I'm as well a multishipper. Here's a list of most fav ships.
 
 I also associate myself with $\color{#42d472}{\text{1x1x1x1}}$. Not that I kin them, tho I can relate to him due to anger issues. Might be a reason why I act like some cartoon villain wannabe or comically rude.
 
+I have a $\color{#42d472}{\text{stupid typing quirk}}$, where I can *misspell* stuff or *miss a letter*. It's kind of on purpose and on accident at the same time, tho I can lock in and type normally.
+
 Honorable mention of cool ppl I know ^_^
 
 <details>

@@ -84,7 +84,7 @@ I'm as well a multishipper. Here's a list of most fav ships.
 <details>
   <summary>Click me to open!</summary>
 
--- ` $\color{#1aba42}{\text{Roblox admins and hackers}}$ : **1xshed**, Buildershed, Doomclock, **Builderblox**, 1x x Aeacus, **1x x 2x2**, 1x666.
+-- ` $\color{#1aba42}{\text{Roblox admins and hackers}}$ : **1xshed**, Buildershed, Doomclock, **Builderblox**, 1x x Aeacus, **1x x 2x2**, 1x666, **Telashed**.
 
 -- ` $\color{#1aba42}{\text{Phighting}}$ : **Hypertana**, **Swocket**, Sublaser,  Banhammer x Scythe, Scythe x Katana, Zuka x Broker.
 

@@ -33,6 +33,12 @@ $\color{#05a650}{\text{Sleeping = afk/offtab.}}$
 
 </div>
 
+<div align="right">
+
+<img width="35" height="35" alt="ezgif-54f297139c6bc4c8" src="https://github.com/user-attachments/assets/0e8e98f5-934b-4bcb-ae10-baa0621b6338" />
+
+</div>
+
 $\color{#de0739}{\text{!!}}$ Do Not Copy any of my skins, please.
 
 $\color{#1aba42}{\text{DNI list and thin ice are listed lower.}}$
@@ -72,6 +78,12 @@ But usually I ask for permission, if I can joke about something, before telling 
 <div align="center">
 
 ### Fun stuff
+
+</div>
+
+<div align="center">
+  
+<img width="800" height="130" alt="ezgif-68fecdcf63d7e649" src="https://github.com/user-attachments/assets/a18c62fd-1111-4cf9-86bb-ae61590b5094" />
 
 </div>
 

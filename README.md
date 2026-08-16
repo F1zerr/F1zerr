@@ -56,7 +56,7 @@ $\color{#de0739}{\text{!!}}$ **Warnings about interaction**
   
 I might just ignore you, if you went to interact first, as sometimes I'm <ins>not in the mood for a talk with strangers</ins> or <ins>simply afk/offtab</ins>. Don't immediately think, that I assumed you're on my DNI list..
 
-Important to mention, that I'm also prone to joke about freaky stuff or something, that might make someone uneasy <small><sup>(though, i wont joke about someone's trauma, im not a moron)</sup></small>. If you don't want me to joke about that, just tell me, I will try to cease jokes about uncomfortable thematics.
+Important to mention, that I'm also prone to joke about freaky stuff or something, that might make someone feel uneasy <small><sup>(though, i wont joke about someone's trauma, im not a moron)</sup></small>. If you don't want me to joke about that, just tell me, I will try to cease jokes about uncomfortable thematics.
 
 But usually I ask for permission, if I can joke about something, before telling it. Or straight up refusing to even mention that. I only do that w/o permission if I feel comfortable around a person and know them long enough, to be sure if they're okay with it.
 </details>

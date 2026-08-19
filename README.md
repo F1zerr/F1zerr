@@ -17,9 +17,18 @@
 
 <div align="center">
 
-; - Hio, I go by $\color{#42d472}{\text{Fizer}}$ or $\color{#42d472}{\text{Haxley}}$. Depends on what you prefer to call me!
+<img width="150" height="20" alt="1320516n3lxgy5fkf" src="https://github.com/user-attachments/assets/432d20af-3ea5-44b0-821d-1c25a021e174" />
+<img width="150" height="20" alt="0138-greenglow" src="https://github.com/user-attachments/assets/6b4bebce-c708-476f-91ee-6da36e67b186" />
+
+</div>
+
+<div align="center">
+
+; - Hio, I go by $\color{#42d472}{\text{Fizer}}$, $\color{#42d472}{\text{Haxley}}$, or even $\color{#42d472}{\text{1x}}$. Depends on what you prefer to call me!
 
 I also go by $\color{#42d472}{\text{He/they/it}}$ and identify myself as $\color{#3f3f66}{\text{A}}\color{#707070}{\text{g}}\color{#edebeb}{\text{e}}\color{#04db04}{\text{n}}\color{#edebeb}{\text{d}}\color{#707070}{\text{e}}\color{#3f3f66}{\text{r}}$, though I'm a bit male leaning.
+
+<img width="150" height="20" alt="0084-agender" src="https://github.com/user-attachments/assets/ee868354-ba03-4ced-8a25-ae895a8a381c" />
 
 $\color{#05a650}{\text{Sleeping = afk/offtab.}}$
 
@@ -46,8 +55,18 @@ $\color{#1aba42}{\text{DNI list and thin ice are listed lower.}}$
 <details>
 
   <summary>Click me to open!</summary>
+
+
   
 -- `***DNI*** : Zoo, Pr3d4tors, N3crophiles, N4zi, Homophobes, d4rkshippers, ppl who spread nsfl/gore material, xenophobes <sub>(esp russophobes)</sub>, ppl who hc that 1x is Telamon/Shedletsky's child, religion obsessed people.
+
+<p align="center">
+
+<img width="170" height="20" alt="dnidni" src="https://adriansblinkiecollection.neocities.org/a48.gif" />
+
+</p>
+
+***
 
 -- `***Thin Ice*** : Dream game larpers/posers, ppl with huge circle of friends (in case, if you want to be friends), Brightsky.
 
@@ -65,6 +84,9 @@ I might just ignore you, if you went to interact first, as sometimes I'm <ins>no
 Important to mention, that I'm also prone to joke about freaky stuff or something, that might make someone feel uneasy <small><sup>(though, i wont joke about someone's trauma, im not a moron)</sup></small>. If you don't want me to joke about that, just tell me, I will try to cease jokes about uncomfortable thematics.
 
 But usually I ask for permission, if I can joke about something, before telling it. Or straight up refusing to even mention that. I only do that w/o permission if I feel comfortable around a person and know them long enough, to be sure if they're okay with it.
+
+**Also important note to people, who want to be friends.** Please, $\color{#e80c3f}{\text{I MEAN IT.}}$ If you say something like "I love you", "You're special to me" and etc. be sure to prove that, by spending a lot of time with me or treat me like you actually mean that I'm special to you. That lie happened to me TWICE, and I refuse to deal with fake people, who don't actually mean their words. Thank you.
+
 </details>
 
 <p align="center">
@@ -89,7 +111,7 @@ But usually I ask for permission, if I can joke about something, before telling 
 
   . .I have not so much fandoms I am in. ***This font*** signs fandoms Im much more active in. :
   
-  Detroit:BH, BBIEaL, ***Roblox history***, ***Dreamsphere***, ***Regretevator***, Block tales, ***Save Robloxia***, Phighting, Die Of Death.
+  Detroit:BH, BBIEaL, ***Roblox history***, ***Dreamsphere***, ***Regretevator***, Block tales, ***Save Robloxia***, Phighting, Die Of Death, Undertale, Deltarune.
 
 I'm as well a multishipper. Here's a list of most fav ships.
 

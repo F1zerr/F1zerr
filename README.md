@@ -26,6 +26,9 @@
 
 ; - Hio, I go by $\color{#42d472}{\text{Fizer}}$, $\color{#42d472}{\text{Haxley}}$, or even $\color{#42d472}{\text{1x}}$. Depends on what you prefer to call me!
 
+! $\color{#42d472}{\text{14}}$. 
+; B-day - $\color{#42d472}{\text{7th February.}}$
+
 I also go by $\color{#42d472}{\text{He/they/it}}$ and identify myself as $\color{#3f3f66}{\text{A}}\color{#707070}{\text{g}}\color{#edebeb}{\text{e}}\color{#04db04}{\text{n}}\color{#edebeb}{\text{d}}\color{#707070}{\text{e}}\color{#3f3f66}{\text{r}}$, though I'm a bit male leaning.
 
 <img width="150" height="20" alt="0084-agender" src="https://github.com/user-attachments/assets/ee868354-ba03-4ced-8a25-ae895a8a381c" />

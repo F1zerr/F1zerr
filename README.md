@@ -149,6 +149,102 @@ Honorable mention of cool ppl I know ^_^
 
 </details>
 
+Stamps collection.. You're free to use them, I js decided to add this for fun lol
+<details>
+
+  <summary>Click me to open!</summary>
+
+<img width="100" height="55" alt="Tumblr_l_75704874114203" src="https://github.com/user-attachments/assets/b3523bec-466f-462a-85f2-617982cd3e38" />
+<img width="100" height="55" alt="Tumblr_l_74782029847995" src="https://github.com/user-attachments/assets/ff1e0904-7ef6-4624-a9ed-9dadb8983d8b" />
+<img width="100" height="55" alt="Tumblr_l_75764408054592" src="https://github.com/user-attachments/assets/cf5c46a5-3c7c-44ed-b4b7-1402639cb525" />
+<img width="101" height="54" alt="photo_2026-08-20_22-50-34" src="https://github.com/user-attachments/assets/d7b9ec57-fd9c-4ee1-9cb6-e66d7d6f3f37" />
+<img width="100" height="55" alt="Tumblr_l_74512983379055" src="https://github.com/user-attachments/assets/a3a84b62-be3a-4abd-9d0e-980df2b6cced" />
+<img width="100" height="55" alt="photo_2026-08-20_22-50-56" src="https://github.com/user-attachments/assets/dd117f65-60cf-4453-a82a-9467d348c58a" />
+<img width="100" height="55" alt="photo_2026-08-20_22-50-52" src="https://github.com/user-attachments/assets/283111ae-bd4c-465d-81d9-80d8a1031fdf" />
+<img width="100" height="55" alt="photo_2026-08-20_22-49-29" src="https://github.com/user-attachments/assets/67dc6fee-3401-4785-b841-ffd646f3fce4" />
+<img width="100" height="55" alt="photo_2026-08-20_22-51-39" src="https://github.com/user-attachments/assets/34855543-1cb3-4bdf-8565-9b7f92a71afc" />
+<img width="100" height="55" alt="photo_2026-08-20_22-55-02" src="https://github.com/user-attachments/assets/69a09e70-a42c-4109-a60b-22a6c5a46393" />
+<img width="100" height="55" alt="photo_2026-08-20_22-49-17" src="https://github.com/user-attachments/assets/2fe9a9c6-15f7-4f52-96e4-09770a72e694" />
+<img width="100" height="55" alt="image" src="https://github.com/user-attachments/assets/06ee6bf7-17ca-4449-87b6-e353848bb335" />
+<img width="100" height="55" alt="photo_2026-08-20_22-49-33" src="https://github.com/user-attachments/assets/6e9a3b83-b79e-42bd-803a-6f4a325d8f07" />
+<img width="100" height="55" alt="Tumblr_l_75632112542276" src="https://github.com/user-attachments/assets/a9dc68b1-72a6-497e-b426-ae622c2e182e" />
+
+
+<img width="100" height="55" alt="photo_2026-08-20_22-51-24" src="https://github.com/user-attachments/assets/5c10a044-5e10-48d1-ac21-6542af60d95e" />
+<img width="100" height="55" alt="photo_2026-08-20_22-51-27" src="https://github.com/user-attachments/assets/88613d86-5885-4f61-8cf3-8527898b9655" />
+<img width="100" height="55" alt="photo_2026-08-20_22-51-31" src="https://github.com/user-attachments/assets/2eebe411-60d4-491e-87e3-260c920045d3" />
+<img width="100" height="55" alt="photo_2026-08-20_22-51-35" src="https://github.com/user-attachments/assets/1f7bc8b0-d685-46ab-a783-b6aaa66d8eac" />
+<img width="100" height="55" alt="photo_2026-08-20_22-51-43" src="https://github.com/user-attachments/assets/c3ee2fb2-8b29-4ece-9cf1-a3f05947f86c" />
+<img width="100" height="55" alt="photo_2026-08-20_22-51-47" src="https://github.com/user-attachments/assets/335f9668-52f0-46db-a1df-5b6f87256229" />
+<img width="100" height="55" alt="photo_2026-08-20_22-51-51" src="https://github.com/user-attachments/assets/a7e44d9f-9341-4e7e-b082-49e064424eb6" />
+<img width="100" height="55" alt="photo_2026-08-20_22-56-23" src="https://github.com/user-attachments/assets/a3b8a631-7655-40f6-9aa6-738d490bbf9c" />
+<img width="100" height="55" alt="Tumblr_l_73606126523078" src="https://github.com/user-attachments/assets/104ee526-b5ef-4aed-9be4-3b2b6a9a350e" />
+<img width="100" height="55" alt="Tumblr_l_73641964259311" src="https://github.com/user-attachments/assets/838300f9-c2a6-4a64-a24c-abc979ff467c" />
+<img width="100" height="55" alt="Tumblr_l_73701750990161" src="https://github.com/user-attachments/assets/ba7d0d6f-86f8-4379-8d35-eaa0859741d3" />
+<img width="100" height="55" alt="Tumblr_l_73751589246472" src="https://github.com/user-attachments/assets/9b5809fb-fe84-4d63-84a9-7ec75a58fd7e" />
+<img width="100" height="55" alt="Tumblr_l_73925460406790" src="https://github.com/user-attachments/assets/111a7615-c818-42f2-ad58-bb46e9210437" />
+
+<img width="100" height="55" alt="Tumblr_l_74022251025488" src="https://github.com/user-attachments/assets/1f896cf8-c9f5-46ab-b086-879ab61ce60e" />
+<img width="100" height="55" alt="Tumblr_l_74069188498721" src="https://github.com/user-attachments/assets/359945d8-66aa-402d-abc8-f597bd377f0c" />
+<img width="100" height="55" alt="photo_2026-08-20_22-51-10" src="https://github.com/user-attachments/assets/4c7338f1-a34f-4601-a2c9-2d6638ae965c" />
+<img width="100" height="55" alt="photo_2026-08-20_22-51-06" src="https://github.com/user-attachments/assets/31918282-1432-4973-a856-f8e9e63e24f2" />
+<img width="100" height="55" alt="photo_2026-08-20_22-51-00" src="https://github.com/user-attachments/assets/c49e60cd-c595-40a6-89e6-b0395edc7130" />
+
+<img width="100" height="55" alt="photo_2026-08-20_22-50-46" src="https://github.com/user-attachments/assets/a3becb64-3a94-44b0-a3af-c953ce98f8b9" />
+<img width="100" height="55" alt="Tumblr_l_74799125037226" src="https://github.com/user-attachments/assets/67e3da3c-05ec-4682-9254-58f61499566a" />
+
+<img width="100" height="55" alt="Tumblr_l_74169785219420" src="https://github.com/user-attachments/assets/c227f631-b6a5-4cc3-a607-34f35d2fda7d" />
+<img width="100" height="55" alt="Tumblr_l_74495772861208" src="https://github.com/user-attachments/assets/075f1d04-dee3-4f0b-bf9e-e00e6d468d44" />
+
+<img width="100" height="55" alt="photo_2026-08-20_22-51-19" src="https://github.com/user-attachments/assets/ae9fe59f-41a2-4f16-a9f8-bb1096710c92" />
+<img width="100" height="55" alt="Tumblr_l_74182786774497" src="https://github.com/user-attachments/assets/f0bc81b0-bf4b-44e6-bab0-3ac235dd9526" />
+
+<img width="100" height="55" alt="Tumblr_l_74338623787430" src="https://github.com/user-attachments/assets/2abd7f1a-e7b5-4790-9dca-b81c03b330f7" />
+<img width="100" height="55" alt="Tumblr_l_73986143699101" src="https://github.com/user-attachments/assets/594688a1-abe6-45d8-909c-360eb6f1da35" />
+<img width="100" height="55" alt="Tumblr_l_74479010920900" src="https://github.com/user-attachments/assets/6325a471-e94e-46aa-be44-19742af9e7ef" />
+<img width="100" height="55" alt="photo_2026-08-20_22-50-38" src="https://github.com/user-attachments/assets/dbfe3191-5777-4c0a-86e4-f9f49d08a45d" />
+
+<img width="100" height="55" alt="photo_2026-08-20_22-50-42" src="https://github.com/user-attachments/assets/369ab462-db8f-48da-b2e7-4defd06aa435" />
+<img width="100" height="55" alt="Tumblr_l_74660751177833" src="https://github.com/user-attachments/assets/7648b4be-62e6-42a2-a5e3-f730d839d136" />
+
+<img width="100" height="55" alt="Tumblr_l_73573528088923" src="https://github.com/user-attachments/assets/e761081d-8ea8-4231-803e-d220885e3b0a" />
+<img width="100" height="55" alt="photo_2026-08-20_23-40-03" src="https://github.com/user-attachments/assets/ba78811a-667f-4617-ba8f-9474034c6678" />
+
+<img width="100" height="55" alt="Tumblr_l_75335046629643" src="https://github.com/user-attachments/assets/22271f0e-b9ef-418d-a1a5-3a7aeba7c358" />
+<img width="100" height="55" alt="Tumblr_l_76154675468999" src="https://github.com/user-attachments/assets/4f3fc54e-a01b-435b-a4d0-64d44e85e0d6" />
+<img width="100" height="55" alt="Tumblr_l_76134168172691" src="https://github.com/user-attachments/assets/85761d2d-3447-4549-a7dd-d8f697d7a1b1" />
+<img width="100" height="55" alt="Tumblr_l_76037531735223" src="https://github.com/user-attachments/assets/713afd36-bd7a-45b2-ab51-0f8e7b00b0a2" />
+<img width="100" height="55" alt="Tumblr_l_76017769477607" src="https://github.com/user-attachments/assets/1a6bfdde-e3bc-41be-848f-2f8b6d9eb3f3" />
+<img width="100" height="55" alt="photo_2026-08-20_22-49-46" src="https://github.com/user-attachments/assets/ceca930b-5d4a-4fc0-8048-7d4e6ba7a59a" />
+
+<img width="100" height="55" alt="Tumblr_l_74871517797923" src="https://github.com/user-attachments/assets/d2e7b9f6-3d04-4e2d-a545-90392ff9a885" />
+
+<img width="100" height="55" alt="Tumblr_l_75112791717630" src="https://github.com/user-attachments/assets/9a8f1c24-9cdb-4fa5-bace-414a8dbc27de" />
+<img width="100" height="55" alt="Tumblr_l_75071227921935" src="https://github.com/user-attachments/assets/bc4fb9a5-66e6-4557-b860-f0d5e889fd28" />
+<img width="100" height="55" alt="Tumblr_l_75058103372934" src="https://github.com/user-attachments/assets/067ba0cd-66f6-4cd6-933f-42e401055f9d" />
+<img width="100" height="55" alt="photo_2026-08-20_22-49-01" src="https://github.com/user-attachments/assets/b3738b0c-d25f-416b-a76e-6733d7a2f901" />
+<img width="100" height="55" alt="Tumblr_l_76056053699532" src="https://github.com/user-attachments/assets/a7397210-893e-4dbf-aa32-595d53c13588" />
+<img width="100" height="55" alt="photo_2026-08-20_22-50-00" src="https://github.com/user-attachments/assets/fd73c598-32d4-4b9b-80ed-1fe7ed460a94" />
+<img width="100" height="55" alt="photo_2026-08-20_22-50-08" src="https://github.com/user-attachments/assets/e3346d37-aaf7-428f-b662-92b3b7c43c9d" />
+<img width="100" height="55" alt="photo_2026-08-20_22-50-14" src="https://github.com/user-attachments/assets/719f7df0-8646-4426-b9f1-1f7ff2ac54d9" />
+<img width="100" height="55" alt="photo_2026-08-20_22-50-05" src="https://github.com/user-attachments/assets/a02f06f9-0013-47bc-9e93-1d3a55fdb32e" />
+<img width="100" height="55" alt="photo_2026-08-20_22-50-17" src="https://github.com/user-attachments/assets/d2955b6b-de60-48a3-8e7b-9572c8197e90" />
+
+<img width="100" height="55" alt="photo_2026-08-20_22-49-09" src="https://github.com/user-attachments/assets/418f910b-fc88-4218-a28f-7ab160fa249f" />
+<img width="100" height="55" alt="photo_2026-08-20_22-49-06" src="https://github.com/user-attachments/assets/011b78f7-20c6-4e84-a127-ba8647c4d289" />
+<img width="100" height="55" alt="photo_2026-08-20_22-49-13" src="https://github.com/user-attachments/assets/1f85d77c-ae7e-45ad-bf4d-718fbb15edfc" />
+
+<img width="100" height="55" alt="photo_2026-08-20_22-49-25" src="https://github.com/user-attachments/assets/ba09499c-bb97-49cc-82f0-cd0594c095c9" />
+
+<img width="100" height="55" alt="photo_2026-08-20_22-49-38" src="https://github.com/user-attachments/assets/d49a8f78-4efd-4b05-9a59-3d04f4106594" />
+<img width="100" height="55" alt="photo_2026-08-20_22-49-43" src="https://github.com/user-attachments/assets/92b728cb-2985-4e27-a5dc-2a3f30ec498d" />
+<img width="100" height="55" alt="Tumblr_l_75534006509886" src="https://github.com/user-attachments/assets/ba0bb62c-dc40-4c97-a6a1-24edeb63ee60" />
+
+<img width="100" height="55" alt="photo_2026-08-20_23-11-17" src="https://github.com/user-attachments/assets/344572af-5fbb-4a5e-a00f-bff9a62100eb" />
+<img width="100" height="55" alt="photo_2026-08-20_22-50-22" src="https://github.com/user-attachments/assets/e5c4717b-839b-4a4f-8608-bc9b51ce5c8b" />
+  
+</details>
+
 <div align="right">
 
 <small><sub>[do not click.](https://i.pinimg.com/736x/32/52/41/325241585f17d53f9b643fcd3a0892d8.jpg)</sub></small>

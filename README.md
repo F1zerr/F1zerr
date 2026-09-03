@@ -24,16 +24,17 @@
 
 <div align="center">
 
-; - Hio, I go by $\color{#42d472}{\text{Fizer}}$, $\color{#42d472}{\text{Haxley}}$, or even $\color{#42d472}{\text{1x}}$. Depends on what you prefer to call me!
+; <img width="20" height="20" alt="radiation" src="https://github.com/user-attachments/assets/3f7407cd-9324-4302-97f9-a927cb5be444" /> - Hio, I go by $\color{#42d472}{\text{Fizer}}$, $\color{#42d472}{\text{Haxley}}$, or even $\color{#42d472}{\text{1x}}$. Depends on what you prefer to call me!
 
 ! $\color{#42d472}{\text{14}}$. 
 ; B-day - $\color{#42d472}{\text{7th February.}}$
 
-I also go by $\color{#42d472}{\text{He/they/it}}$ and identify myself as $\color{#3f3f66}{\text{A}}\color{#707070}{\text{g}}\color{#edebeb}{\text{e}}\color{#04db04}{\text{n}}\color{#edebeb}{\text{d}}\color{#707070}{\text{e}}\color{#3f3f66}{\text{r}}$, though I'm a bit male leaning.
+I also go by $\color{#42d472}{\text{He/they/it}}$ and identify myself as $\color{#3f3f66}{\text{A}}\color{#707070}{\text{g}}\color{#edebeb}{\text{e}}\color{#04db04}{\text{n}}\color{#edebeb}{\text{d}}\color{#707070}{\text{e}}\color{#3f3f66}{\text{r}}$, but if more correctly, as Aboy.
 
-<img width="150" height="20" alt="0084-agender" src="https://github.com/user-attachments/assets/ee868354-ba03-4ced-8a25-ae895a8a381c" />
+<img width="120" height="20" alt="adversary" src="https://github.com/user-attachments/assets/852d5a48-4039-46f7-822b-278a4fc346d8" />
 
-$\color{#05a650}{\text{Sleeping = afk/offtab.}}$
+<img width="20" height="20" alt="green2" src="https://github.com/user-attachments/assets/850bc11d-bc30-424d-949e-d66df659d770" /> $\color{#05a650}{\text{Sleeping = afk/offtab. Ask for c+h, friends can c+h freely.}}$ <img width="20" height="20" alt="green2" src="https://github.com/user-attachments/assets/850bc11d-bc30-424d-949e-d66df659d770" />
+
 
 </div>
 
@@ -58,14 +59,12 @@ $\color{#1aba42}{\text{DNI list and thin ice are listed lower.}}$
 <details>
 
   <summary>Click me to open!</summary>
-
-
   
--- `***DNI*** : Zoo, Pr3d4tors, N3crophiles, N4zi, Homophobes, d4rkshippers, ppl who spread nsfl/gore material, xenophobes <sub>(esp russophobes)</sub>, ppl who hc that 1x is Telamon/Shedletsky's child, religion obsessed people.
+-- <img width="20" height="20" alt="emoji" src="https://github.com/user-attachments/assets/cee4c1dc-1258-4f65-aaee-a7da3466388c" /> `***DNI*** : Zoo, Pr3d4tors, N3crophiles, N4zi, Homophobes, transphobes, racists, d4rkshippers, radqueers, terf, radfem, ppl who spread nsfl/gore material, xenophobes <sup>(esp russophobes)</sup>, ppl who hc that 1x is Telamon/Shedletsky's child, religion obsessed people.
 
 <p align="center">
 
-<img width="170" height="20" alt="dnidni" src="https://adriansblinkiecollection.neocities.org/a48.gif" />
+<img width="170" height="20" alt="dnidni" src="https://adriansblinkiecollection.neocities.org/a48.gif" /> 
 
 </p>
 
@@ -75,11 +74,12 @@ $\color{#1aba42}{\text{DNI list and thin ice are listed lower.}}$
 
 </details>
 
-I'm less likely to be online at 7.00 pm - 02.00 am (UTC). But if to use my timezone, it's 12.00 am - 07.00 am.
+<img width="20" height="20" alt="green1" src="https://github.com/user-attachments/assets/dd1add30-cad0-4bd9-b0d7-b53099685b75" /> I'm less likely to be online at 7.00 pm - 02.00 am (UTC). But if to use my timezone, it's 12.00 am - 07.00 am.
 
-$\color{#de0739}{\text{!!}}$ **Warnings about interaction**
+$\color{#de0739}{\text{!!}}$ **Warnings about interaction** 
 
 <details>
+  
   <summary>Click me to open!</summary>
   
 I might just ignore you, if you went to interact first, as sometimes I'm <ins>not in the mood for a talk with strangers</ins> or <ins>simply afk/offtab</ins>. Don't immediately think, that I assumed you're on my DNI list..
@@ -94,7 +94,7 @@ But usually I ask for permission, if I can joke about something, before telling 
 
 <p align="center">
   
-<img width="250" height="50" alt="photo_2026-08-12_21-13-07" src="https://github.com/user-attachments/assets/fe37a301-1f42-44c3-a50c-b280cf9a60e9" />
+  <img width="150" height="20" alt="angry" src="https://github.com/user-attachments/assets/3c4dcf6d-9963-495b-a815-e07e4cec99e3" />
 
 </p>
 
@@ -116,7 +116,7 @@ But usually I ask for permission, if I can joke about something, before telling 
   
   Detroit:BH, BBIEaL, ***Roblox history***, ***Dreamsphere***, ***Regretevator***, Block tales, ***Save Robloxia***, Phighting, Die Of Death, Undertale, Deltarune.
 
-I'm as well a multishipper. Here's a list of most fav ships.
+<img width="20" height="20" alt="green3" src="https://github.com/user-attachments/assets/cf5aaa40-b6ce-4b64-a2fa-dac08c27f068" /> I'm as well a multishipper. Here's a list of most fav ships. 
 
 <details>
   <summary>Click me to open!</summary>
@@ -133,7 +133,9 @@ I'm as well a multishipper. Here's a list of most fav ships.
   
 </details>
 
-I also associate myself with $\color{#42d472}{\text{1x1x1x1}}$. Not that I kin them, tho I can relate to him due to anger issues. Might be a reason why I act like some cartoon villain wannabe or comically rude.
+<img width="20" height="20" alt="starr" src="https://github.com/user-attachments/assets/57b295c1-3ced-40f9-a2ee-530f801a81a9" /> I also associate myself with $\color{#42d472}{\text{1x1x1x1}}$. Not that I kin them, tho I can relate to him due to anger issues, having troubles with understanding some social norms or morals and not liking to talk to people at all. Might be a reason why I act like some cartoon villain wannabe or comically rude.
+
+<img width="170" height="20" alt="1xblink2" src="https://github.com/user-attachments/assets/181a8030-0879-465e-8c9f-0132efd112f4" />
 
 I have a $\color{#42d472}{\text{stupid typing quirk}}$, where I can *misspell* stuff or *miss a letter*. It's kind of on purpose and on accident at the same time, tho I can lock in and type normally.
 
@@ -146,6 +148,14 @@ Honorable mention of cool ppl I know ^_^
   ***ORDER DOESNT MATTER!!!*** I love them all!
  
  -- ` $\color{#42d472}{\text{Mishura, Spam, DJ, Olivka, Moon.}}$  
+
+ <div align="right">
+
+<img width="150" height="25" alt="green5" src="https://github.com/user-attachments/assets/96d2bacc-ee35-404f-bcb2-ce7c90267371" />
+
+<small><sub>$\color{#3d3d3d}{\text{spam...}}$</sub></small>
+
+</div>
 
 </details>
 
@@ -162,6 +172,7 @@ Stamps collection.. You're free to use them, I js decided to add this for fun lo
 <img width="100" height="55" alt="1x6" src="https://github.com/user-attachments/assets/dd117f65-60cf-4453-a82a-9467d348c58a" />
 <img width="100" height="55" alt="1x7" src="https://github.com/user-attachments/assets/283111ae-bd4c-465d-81d9-80d8a1031fdf" />
 <img width="100" height="55" alt="1x8" src="https://github.com/user-attachments/assets/67dc6fee-3401-4785-b841-ffd646f3fce4" />
+<img width="100" height="55" alt="1x9" src="https://github.com/user-attachments/assets/9cc515b5-9bb4-4a56-86cd-5dae6581596a" />
 <img width="100" height="55" alt="greencode1" src="https://github.com/user-attachments/assets/69a09e70-a42c-4109-a60b-22a6c5a46393" />
 <img width="100" height="55" alt="computer" src="https://github.com/user-attachments/assets/2fe9a9c6-15f7-4f52-96e4-09770a72e694" />
 <img width="100" height="55" alt="greencode2" src="https://github.com/user-attachments/assets/06ee6bf7-17ca-4449-87b6-e353848bb335" />

@@ -118,7 +118,7 @@ I like to follow ppl's github, if I consider them cool or interesting г:<
 
   . .I have not so much fandoms I am in. ***This font*** signs fandoms Im much more active in. :
   
-  Detroit:BH, BBIEaL, ***Roblox history***, ***Dreamsphere***, ***Regretevator***, Block tales, ***Save Robloxia***, Phighting, Die Of Death, Undertale, Deltarune.
+  Detroit:BH, BBIEaL, ***Roblox history***, ***Dreamsphere***, ***Regretevator***, Block tales, ***Save Robloxia***, Phighting, Die Of Death, Undertale, Deltarune, aregect.
 
 <img width="20" height="20" alt="green3" src="https://github.com/user-attachments/assets/cf5aaa40-b6ce-4b64-a2fa-dac08c27f068" /> I'm as well a multishipper. Here's a list of most fav ships. 
 

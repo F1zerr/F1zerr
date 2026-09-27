@@ -139,7 +139,7 @@ I like to follow ppl's github, if I consider them cool or interesting г:<
 
 <img width="20" height="20" alt="starr" src="https://github.com/user-attachments/assets/57b295c1-3ced-40f9-a2ee-530f801a81a9" /> I also associate myself with $\color{#42d472}{\text{1x1x1x1}}$. Not that I kin them, tho I can relate to him due to anger issues, having troubles with understanding some social norms or morals and not liking to talk to people at all. Might be a reason why I act like some cartoon villain wannabe or comically rude.
 
-. I also think i might be a fictkin of them, since I noticed the fact of how often I look at 1x and think "this is me" or consider some mischaracterization as much as if someone would mischaracterize me </3. But despite being 1x fictkin, I kin $\color{#b52f4e}{\text{Aeacus}}$!!
+. I also think i might be a fictkin of them, since I noticed the fact of how often I look at 1x and think "this is me" or consider some mischaracterization as much as if someone would mischaracterize me </3.
 
 <img width="170" height="20" alt="1xblink2" src="https://github.com/user-attachments/assets/181a8030-0879-465e-8c9f-0132efd112f4" />
 

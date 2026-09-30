@@ -153,7 +153,7 @@ Honorable mention of cool ppl I know ^_^
 
   ***ORDER DOESNT MATTER!!!*** I love them all!
  
- -- ` $\color{#42d472}{\text{Mishura, Spam, DJ, Olivka, Moon.}}$  
+ -- ` $\color{#42d472}{\text{Mishura, Spam, DJ, Olivka.}}$  
 
  <div align="right">
 

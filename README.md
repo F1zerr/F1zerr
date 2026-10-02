@@ -33,7 +33,7 @@ I also go by $\color{#42d472}{\text{He/they/it}}$ and identify myself as $\color
 
 <img width="120" height="20" alt="adversary" src="https://github.com/user-attachments/assets/852d5a48-4039-46f7-822b-278a4fc346d8" />
 
-<img width="20" height="20" alt="green2" src="https://github.com/user-attachments/assets/850bc11d-bc30-424d-949e-d66df659d770" /> $\color{#05a650}{\text{Sleeping = afk/offtab. Ask for c+h, friends can c+h freely.}}$ <img width="20" height="20" alt="green2" src="https://github.com/user-attachments/assets/850bc11d-bc30-424d-949e-d66df659d770" />
+<img width="20" height="20" alt="green2" src="https://github.com/user-attachments/assets/850bc11d-bc30-424d-949e-d66df659d770" /> $\color{#05a650}{\text{Sleeping = afk/offtab. Ask for c+h, friends/moots can c+h freely.}}$ <img width="20" height="20" alt="green2" src="https://github.com/user-attachments/assets/850bc11d-bc30-424d-949e-d66df659d770" />
 
 
 </div>
